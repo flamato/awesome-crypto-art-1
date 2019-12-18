@@ -196,7 +196,7 @@ All of the following artists are either dedicated crypto artists or have been kn
 - [Toonpunk](http://toonpunk.space/)
 - [Travis Leroy Southworth](http://travisleroysouthworth.com/)
 - [Trevor Jones](https://www.trevorjonesart.com/)
-  - [Trevor's awesome ATIST CHECKLIST FOR SUCCESS](https://www.trevorjonesart.com/blog1/artist-checklist-for-success)
+  - [Trevor's awesome ARTIST CHECKLIST FOR SUCCESS](https://www.trevorjonesart.com/blog1/artist-checklist-for-success)
 - [unityofmulti](https://linktr.ee/unityofmulti)
 - [Trina Merry](http://www.trinamerryartist.com/)
 - [VESA](https://www.artforcrypto.com/)
